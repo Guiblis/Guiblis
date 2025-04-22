@@ -4,6 +4,6 @@
 
 ### [Sawadeee!](https://github.com/user-attachments/assets/036e093b-a47f-4564-adaa-87ab7dc3dde2)
 
-**I'm here with my scholars friends to try to test how to do a README file in the GitHub**
-_**The weather today is nice and the clouds are gathering upon the building. It might rain later in the day but I'm not that hopeful**_
+**I'm here with my friends to try testing how to do a README file in the GitHub**
 
+[Bye!](https://github.com/user-attachments/assets/abcc61e1-9317-462e-a538-f8f9d9aed07f)
