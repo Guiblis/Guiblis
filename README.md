@@ -7,3 +7,4 @@
 **I'm here with my friends to try testing how to do a README file in the GitHub**
 
 [Bye!](https://github.com/user-attachments/assets/abcc61e1-9317-462e-a538-f8f9d9aed07f)
+.(❁´◡`❁)(●'◡'●)╰(*°▽°*)╯☆*: .｡. o(≧▽≦)o .｡.:*☆
