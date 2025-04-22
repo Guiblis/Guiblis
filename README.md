@@ -1,4 +1,4 @@
-# Oi! [HiLabenGIF](https://github.com/user-attachments/assets/be3ae61e-4600-4d2c-a3d7-cd8002620197)
+# [Oi!](https://github.com/user-attachments/assets/be3ae61e-4600-4d2c-a3d7-cd8002620197)
 
 ## Hello
 ### Sawadee krub
